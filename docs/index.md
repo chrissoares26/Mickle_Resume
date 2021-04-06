@@ -30,7 +30,7 @@ __Coding experience__ | 5 years experience
 ## Service and Work History
 
 `2017-2019`
-__Volunteer Missionary__ | Pittsburg, PA
+__Full-time Volunteer Representative__, The Church of Jesus Christ of Latter-Day Saints, Pittsburg, PA
 
 - Served two years as a volunteer for the Church of Jesus Christ of Latter-day Saints performing community service and missionary work.
 
